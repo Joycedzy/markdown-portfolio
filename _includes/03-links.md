@@ -1,1 +1,1 @@
-https://www.linkedin.com/in/ziyuding/
+[linkedin](https://www.linkedin.com/in/ziyuding/)
